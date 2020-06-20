@@ -1,1 +1,0 @@
-# FujiwaraJun3.github.io
